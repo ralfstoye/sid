@@ -42,9 +42,10 @@ will follow
 https://stoye.com/
 
 ***********************
-The Seond Link: censored 
 
-until some human & civil questions / problems are solved )
+The Second Link: censored, "removed", edited away. You get it. 
+
+until some human & civil questions / problems are solved.
 
 
 # Related: see my inspirational list on youtube:
