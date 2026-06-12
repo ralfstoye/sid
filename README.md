@@ -41,12 +41,34 @@ will follow
 
 https://stoye.com/
 
-https://axiomat.de/rs/sid/
+***********************
+The Seond Link: censored 
 
-# Related: see sid-inspirations.html
+until some human & civil questions / problems are solved )
 
 
------
+# Related: see my inspirational list on youtube:
+
+Manche Gedanken lassen sich total klar in Geschichten, Bildern und Tönen finden.
+
+Ich kann keine Form höherer Klarheit ausmachen (Semantische Dichte?).
+
+Ich habe schon immer Musik gebraucht um nach (warum eigentlich "nach"): Denken zu können.
+
+Bilder sind so stark, Geschichten auch.
+
+Geht Dir das auch so?
+
+Aus einer Youtube Liste, der sid-inspirations habe ich einzelne zum Deklariern von Konzepten ausgesucht,
+hier die ganze Liste, die Täglich wächst, das ist mein Vorrat an Bildern zum Festigen einer Idee
+
+Also eine eher nach Vollständigkeit strebende YouTube Liste: sid-inspirations entnommen:
+
+https://www.youtube.com/playlist?list=PLtuX89tQ-3qjIn78c-h8RYNbZ1UwVpalQ 
+
+
+------------
+
 lg-rs
 
 
